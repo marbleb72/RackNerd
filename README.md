@@ -1,4 +1,4 @@
-# 2024 Latest RackNerd Coupon Codes - Organized Summary of RackNerd Deals
+# 2025 Latest RackNerd Coupon Codes - Organized Summary of RackNerd Deals
 
 ## RackNerd Introduction
 RackNerd, an American hosting provider with over a decade of experience in server hosting and management, offers a wide range of hosting solutions including VPS, dedicated servers, and shared hosting primarily in the US and Europe. This article provides an overview of the latest RackNerd promotions and coupon codes, ideal for those seeking affordable VPS solutions.
